@@ -145,7 +145,7 @@
 
 本プライバシーポリシーに関するお問い合わせは、以下までお願いいたします。
 
-- サービス名: perfect creative research
+- サービス名: perfect design research
 - 運営者名: Nagase luka
 - 連絡先メールアドレス: luka.na.work@gmail.com
 - Webサイト: luka-nagase.work
